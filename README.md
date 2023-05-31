@@ -1,2 +1,2 @@
 # Awesome-Notes
-Giving you and your loved one a friendly random inspiration, in a world of infinite frustrations
+Giving you and your loved one a random friendly inspiration, in a world of infinite frustrations
